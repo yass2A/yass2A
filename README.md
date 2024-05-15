@@ -1,24 +1,18 @@
 ### Hi there 👋
 
 ─── © 🎞 film by 𝖄𝖆𝖘𝖘
-ᆞ{@user} Seja bem vindo(a) ao meu perfil no GitHug 𖤐 ּ ֗ ִ ּ
+ᆞSeja bem vindo(a) ao meu perfil no GitHug 𖤐 ּ ֗ ִ ּ
 ꒰꒰ ✧ ִ ۟   𓈒 Divirta-se nesse hospício ๑  ׄ 🥀 ִ  ʾʾ
  あ ׁ ₊ Peço gentilmente que seja gentil. ⩇⩇﹟ ׁ ֢
 
 •★•─────•✧†✦─────•★•
 
- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-
+★ Estou estudando na Alura
+★ Estou me desenvolvendo na linguagem JavaScript
+★ Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
 •★•─────•✧†✦─────•★•
 
- ꜂ ⸼ 🩸 ˳ ࣪ ⭒ qualquer problema entre em contato com chefe ou algum staff  ੭࣪  ⭒ ࣪ ˳
-Here are some ideas to get you started:
+ ꜂ ⸼ 🩸 ˳ ࣪ ⭒ Você pode entrar em contato comigo 📫
+yasminfariadasilvaleite@gmail.com. ੭࣪  ⭒ ࣪ ˳
+

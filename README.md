@@ -16,3 +16,6 @@
  ꜂ ⸼ 🩸 ˳ ࣪ ⭒ Você pode entrar em contato comigo 📫
 yasminfariadasilvaleite@gmail.com. ੭࣪  ⭒ ࣪ ˳
 
+<img src="URL_da_Imagem" alt="Texto Alternativo">
+<img src="URL_da_Imagem" alt="Texto Alternativo">
+<img src="https://exemplo.com/logo.png" alt="Logo da Minha Empresa">

@@ -1,11 +1,13 @@
 ### Hi there 👋
 
-<!--
-**yass2A/yass2A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+─── © 🎞 film by 𝖄𝖆𝖘𝖘
+ᆞ{@user} Seja bem vindo(a) ao meu perfil no GitHug 𖤐 ּ ֗ ִ ּ
+꒰꒰ ✧ ִ ۟   𓈒 Divirta-se nesse hospício ๑  ׄ 🥀 ִ  ʾʾ
+ あ ׁ ₊ Peço gentilmente que seja gentil. ⩇⩇﹟ ׁ ֢
 
-Here are some ideas to get you started:
+•★•─────•✧†✦─────•★•
 
-- 🔭 I’m currently working on ...
+ 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
@@ -14,3 +16,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+•★•─────•✧†✦─────•★•
+
+ ꜂ ⸼ 🩸 ˳ ࣪ ⭒ qualquer problema entre em contato com chefe ou algum staff  ੭࣪  ⭒ ࣪ ˳
+Here are some ideas to get you started:

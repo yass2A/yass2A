@@ -9,12 +9,10 @@
 
 ★ Estou estudando na Alura
 ★ Estou me desenvolvendo na linguagem JavaScript
-★ Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+★ Utilizo esse espaço para minha organização e
+compartilhamento dos meu projetos desenvolvidos
 
 •★•─────•✧†✦─────•★•
 
  ꜂ ⸼ 🩸 ˳ ࣪ ⭒ Você pode entrar em contato comigo 📫
 yasminfariadasilvaleite@gmail.com. ੭࣪  ⭒ ࣪ ˳
-
-
-<img src="[https://i.pinimg.com/736x/f5/57/4d/f5574de755a038363698372720702e33.jpg]" alt="imagem">

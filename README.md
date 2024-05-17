@@ -2,7 +2,9 @@
 
 ─── © 🎞 film by 𝖄𝖆𝖘𝖘
 ᆞSeja bem vindo(a) ao meu perfil no GitHug 𖤐 ּ ֗ ִ ּ
-꒰꒰ ✧ ִ ۟   𓈒 Divirta-se nesse hospício ๑  ׄ 🥀 ִ  ʾʾ
+
+꒰꒰ ✧ ִ ۟   𓈒 Divirta-se nesse hospício ๑  ׄ 🥀 ִ  ʾ
+
  あ ׁ ₊ Peço gentilmente que seja gentil. ⩇⩇﹟ ׁ ֢
 
 •★•─────•✧†✦─────•★•

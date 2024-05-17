@@ -1,4 +1,4 @@
-### Hi there 👋
+### ⥽ Hi little angel 👋
 
 ─── © 🎞 film by 𝖄𝖆𝖘𝖘
 
@@ -12,7 +12,7 @@
 
 ★ Estou estudando na Alura
 
-★ Estou me desenvolvendo na linguagem JavaScript
+☆ Estou me desenvolvendo na linguagem JavaScript
 
 ★ Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 

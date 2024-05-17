@@ -17,5 +17,4 @@
 yasminfariadasilvaleite@gmail.com. ੭࣪  ⭒ ࣪ ˳
 
 
-<img src="[URL_da_Imagem](https://i.pinimg.com/736x/f5/57/4d/f5574de755a038363698372720702e33.jpg)" alt="Texto Alternativo">
-<img src="[https://i.pinimg.com/736x/f5/57/4d/f5574de755a038363698372720702e33.jpg]">
+<img src="[https://i.pinimg.com/736x/f5/57/4d/f5574de755a038363698372720702e33.jpg]" alt="imagem">
